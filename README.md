@@ -1,5 +1,5 @@
 - 👋 Hi, I’m TSS!
 - 👀 I’m interested in music. I make music.
 - 🌱 I’m currently learning how to be funny.
-- 💞️ I’m looking to collaborate on mainly games at the moment. I specialise in friday night funkin and electronic music.
+- 💞️ I’m looking to collaborate on mainly games at the moment. I specialize in friday night funkin and electronic music.
 - 📫 How to reach me - no.
